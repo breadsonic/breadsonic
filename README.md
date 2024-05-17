@@ -13,7 +13,8 @@ Let's start off with the fact you put me and my bf in ur **DNI** list. Are you 1
 I told my bf to leave too bc i didn't wanted you guys to ask him questions. **I AM NOT MANIPULATING HIM.** And im not using him for money. **HE** decided to give me his money, i didn't ask for them. AND i won't be crawling back to y'all ugly asses. Cry about it.
 
 Plus you are spreading lies about me??? Funny. Say those shits on my face not behind my back. AND STOP TALKING ABOUT MY EXS, THEY NEED SPACE TOO YK! 
-And the fact you said you never trusted me when we were friends?? Wtf??? I truster you with my whole life just to be sent a ss of your message saying that. Wow.
+
+And the fact you said you never trusted me when we were friends?? Wtf??? I trusted you with my whole life just to be sent a ss of your message saying that. Wow.
 
 Please go back in school and also learn about the fact **Rouamy** is illegal and it's a proship. Thanks girl!
 
