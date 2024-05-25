@@ -8,4 +8,4 @@ No. I'm not. I only kin Sonic and other characters. Stop associating me w them. 
 ***
 
 
-"IrLsOnIc DnI" bro just block me LOL??? you are so childish.
+"IrLsOnIc DnI" bro just block me, LOL??? you are so childish.
