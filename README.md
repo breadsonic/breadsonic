@@ -1,4 +1,4 @@
-# **This mostly go for pony town people.**
+# **This mostly for pony town people.**
 
 If i unfriend you or block you please stop trying to contact me.
 You are just waisting my time. 
