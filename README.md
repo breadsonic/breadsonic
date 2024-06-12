@@ -1,6 +1,6 @@
-# **This mostly for pony town people.**
+# **This is mostly for pony town people.**
 
-If i unfriend you or block you please stop trying to contact me.
+If i unfriend you or block you... please stop trying to contact me.
 You are just waisting my time. 
 
 By the way i wont INT w you if you are friends w someone i hate/was friends with.
