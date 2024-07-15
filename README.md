@@ -11,4 +11,4 @@ By the way i wont INT w you if you are friends w someone i hate/was friends with
 #
 **AlienRat / BombNerd DNI !!**
 
-*you made so many people uncomfortable. plus im still in your DNI list because i left you since i was ALSO uncomfortable? you're stupid. pathetic life being.*
+*you made so many people uncomfortable. plus im still in your DNI list... so i'm repaying this back. you're a stupid pathetic being. no wonder your friends left you, i'm not surprised actually. you ship an adult with a child... get a life.*
