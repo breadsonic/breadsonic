@@ -1,7 +1,7 @@
 # **This is mostly for pony town people but also discord people.**
 
 If i unfriend you or block you... please stop trying to contact me.
-You are just waisting my time. 
+You are just wasting my time. 
 
 By the way i wont INT w you if you are friends w someone i hate/was friends with.
 
